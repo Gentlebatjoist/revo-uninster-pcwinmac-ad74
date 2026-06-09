@@ -1,4 +1,4 @@
-# 
+# Officiel Revo Uninstaller préréglages pour Mac OS | Ultime Revo Uninstaller préréglages pour PC Windows. Avec support en ligne de commande et intégration cloud — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
